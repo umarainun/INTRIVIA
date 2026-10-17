@@ -14,4 +14,7 @@ Pesan saya, semoga INTRIVIA 2026 dapat terus menjadi kegiatan yang bermanfaat ba
 ## Kesan Pesan Cluster 7 Sejauh Ini 
 Kesan saya selama berada di cluster 7 ini adalah senang bisa bertemu teman-teman baru, saling mengenal, dan belajar bersama. Suasana cluster juga memberikan pengalaman baru yang menyenangkan selama mengikuti INTRIVIA 2026.
 
-Pesan saya, semoga ke depannya kita bisa semakin kompak, saling membantu, dan menjaga komunikasi yang baik. Semoga kebersamaan ini tetap terjalin meskipun kegiatan INTRIVIA 2026 yang sedikit lagi selesai.
+Pesan saya, semoga ke depannya kita bisa semakin kompak, saling membantu, dan menjaga komunikasi yang baik. Semoga kebersamaan ini tetap terjalin meskipun kegiatan INTRIVIA 2026 hampir selesai.
+
+## Harapan Kuliah
+Harapan saya selama kuliah adalah bisa belajar dengan baik, mendapatkan banyak pengalaman baru, memperluas relasi, dan mengembangkan kemampuan di bidang teknologi. Saya juga berharap bisa menjadi pribadi yang lebih mandiri, disiplin, dan bertanggung jawab, serta lulus tepat waktu dengan ilmu yang bermanfaat untuk masa depan.
