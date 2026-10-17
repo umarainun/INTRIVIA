@@ -1,4 +1,4 @@
-    # INTRIVIA 2026 
+INTRIVIA 2026
 
 ## Identitas Diri 
 | Nama Lengkap | NIM | Program Studi | Cluster | 
