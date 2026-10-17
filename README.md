@@ -3,7 +3,7 @@
 ## Identitas Diri 
 | Nama Lengkap | NIM | Program Studi | Cluster | 
 |--------------|-----|---------------|---------| 
-| [Umar Ainun] | [265150307111044] | [Teknik Komputer] | [7] | 
+| Umar Ainun | 265150307111044 | Teknik Komputer | 7 | 
 
 ## Kesan Pesan INTRIVIA Sejauh Ini 
 
